@@ -1,3 +1,3 @@
 # Comrade-Stickers
 
-### Peace was never an option!
+### Peace was never an option
