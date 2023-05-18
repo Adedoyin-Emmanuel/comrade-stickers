@@ -1,3 +1,3 @@
 # Comrade-Stickers
 
-### Peace was never an option
+### collaborators need for this project.
